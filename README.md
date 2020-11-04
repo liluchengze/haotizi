@@ -14,7 +14,7 @@
 
 
 
-# 2.Nord梯子   [Nord官网地址](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&url_id=613&aff_click_id=github&aff_sub=gitbest&aff_sub2=tizi)
+# 2.Nord梯子   [Nord官网地址](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&url_id=613&aff_click_id=github&aff_sub=gitlilu&aff_sub2=haotizi)
 ✅ 推荐，老牌梯子，多次被评为No.1，超强加密，服务器节点5000+
 
 ✅ 最多人再次购买的梯子工具
@@ -26,7 +26,7 @@
 优势：不记录日志，网速稳定，2048位加密超强隐私保护，30天无理由退款等等很多，美国、德国最喜欢的VPN之一
 
 
-# 3.Ivacy梯子 [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=excellent&data2=tizi)
+# 3.Ivacy梯子 [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitlilu&data2=haotizi)
 ✅ 美国的品牌，在外网的评价非常好，TOP5的水平
 
 ✅ 网速很快，2019年的行业对比排第一
@@ -40,7 +40,7 @@
 ❗ ❗ 使用提示：**由于中国大陆地区的网络特殊，ivacy针对性的提供了几个专用安装包**，如果自己找不到的，这里给大家提供最近的下载包：[Windows、Mac、Android安装包](ivacyapp.md)（其他未提到的环境，还是用统一的APP或安装包即可）
 
 
-# 4.Express梯子 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitbest&data1=tizi)
+# 4.Express梯子 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitlilu&data1=haotizi)
 多年评为全球服务第一，除了贵没别的毛病，30天内无理由退款
 
 **注意** ：官方关闭了中国区镜像(产品牛逼就可以为所欲为吗~)，不影响购买后使用。因此需要先用其他可试用的梯子，才能打开官网
@@ -49,7 +49,7 @@
 
 
 
-# 5.Pure梯子 [Pure官网地址](https://billing.purevpn.com/aff.php?aff=42611&data1=github&data2=excellent_tizi)
+# 5.Pure梯子 [Pure官网地址](https://billing.purevpn.com/aff.php?aff=42611&data1=gitlilu&data2=haotizi)
 香港品牌，超大带宽，直连通道，很多Mac使用它
 
 Pure没有中国区镜像，因此需要用其他可试用的梯子，才能打开官网
