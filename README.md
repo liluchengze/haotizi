@@ -37,7 +37,7 @@
 
 优势：非常适合亚洲地区，在国内使用稳定，30天无理由退款
 
-❗ ❗ 使用提示：**由于中国大陆地区的网络特殊，ivacy针对性的提供了几个专用安装包**，如果自己找不到的，这里给大家提供最近的下载包：[Windows、Mac、Android安装包](ivacyapp.md)（其他未提到的环境，还是用统一的APP或安装包即可）
+❗ ❗ 使用提示：**由于中国大陆地区的网络特殊，ivacy针对性的提供了几个专用安装包**
 
 
 # 4.Express梯子 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitlilu&data1=haotizi)
